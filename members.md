@@ -1,4 +1,4 @@
-Miroslava Gemelová
+Miroslava Gemeľová
 
 Filip Edward Madzinski
 
